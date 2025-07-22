@@ -7,3 +7,7 @@
 | _Lateral Raise_  | 15's    | 8      | s      | x      |
 | _Dips_           | (bw)   | 2      | -     | 5      |
 | _French Press_   | 30    | 12     | s      | x      |
+
+## Notes:
+- Next time start with dips, finish with shoulders.
+Shoulders felt pretty tight ending with tri's. 
